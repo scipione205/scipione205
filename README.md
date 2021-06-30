@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Carlito
+- 👀 I’m interested in Motion Picture Industry (Filmmaking), Fighter jets, Milling Machines, Electronics
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on Motion Picture projects
+- 📫 How to reach me www.lopallovski.com
